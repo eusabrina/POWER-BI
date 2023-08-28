@@ -5,6 +5,6 @@
 <br>
 
 ### Janela ainda em construção, para conhecer um pouco, conheça meu antigo portfólio:
-[Clique aqui](https://eusabrina.wixsite.com/dash)
-Link: https://eusabrina.wixsite.com/dash
+[Clique aqui](https://eusabrina.wixsite.com/dash) <br>
+Ou pelo link: https://eusabrina.wixsite.com/dash
 
